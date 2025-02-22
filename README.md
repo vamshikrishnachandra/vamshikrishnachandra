@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **vamshikrishnachandra@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1LhB36WvtVJD5y3gZnfUnP2DSJZXjGAC2/view?usp=sharing](https://drive.google.com/file/d/1LhB36WvtVJD5y3gZnfUnP2DSJZXjGAC2/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1GFz_RBChMFmOXruRALCG0HU_4LRk61S5/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
